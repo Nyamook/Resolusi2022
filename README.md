@@ -1,2 +1,2 @@
 # Resolusi2022
-Apa aja
+Rencana di Tahun 2022
